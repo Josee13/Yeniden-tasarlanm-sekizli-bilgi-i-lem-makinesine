@@ -1,0 +1,1 @@
+# Yeniden-tasarlanm-sekizli-bilgi-i-lem-makinesine
